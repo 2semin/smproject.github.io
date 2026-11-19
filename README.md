@@ -1,1 +1,0 @@
-# smproject.github.io
